@@ -3,4 +3,4 @@
 martial arts, cooking, programming, streetwear
 basically sneaker and computer games
 - 🌱 I’m currently learning JAVA
-
+- 💰 Cryptocurrency HODLER
