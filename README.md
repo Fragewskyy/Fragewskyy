@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Fragewskyy
 - 👀 I’m interested in carpfishing, running,
-martial arts, cooking, programming, streetwear
-basically sneakers and gym
+BJJ, cooking, programming, streetwear
+basically sneakers, xc skiing and gym
 - 🌱 I’m currently learning JAVA
 - 💰 Cryptocurrency HODLER
